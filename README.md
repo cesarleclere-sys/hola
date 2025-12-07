@@ -1,2 +1,1 @@
-# hola
-no open
+este es un virus muy peligroso
